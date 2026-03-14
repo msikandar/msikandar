@@ -33,4 +33,4 @@
 
 
 [instagram]: https://www.instagram.com/mohammad_sikandar/
-[linkedin]: https://www.linkedin.com/in/md-sikandar-124ba8136/
+[linkedin]: https://www.linkedin.com/in/mohammad-sikandar-124ba8136/
