@@ -4,7 +4,7 @@
 
 ## I'm a Student, Programmer and Developer !
 - 👯 I’m looking to collaborate with other content creators
-- 🥅 2020 Goals: Contribute more to Open Source projects and connect with others
+- 🥅 2026 Goals: Contribute more to Open Source projects and connect with others
 - ⚡ Fun fact: I love Biriyani 🤣.
 - 🌱Interest: Painting, Coding, Science fiction
 
